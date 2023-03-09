@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **alexjacksonfullstack@gmail.com**
 
-- 📄 Know about my experiences [I have 15+ years of experience in "SDLC-WEB/MOBILE APP" Industry and have worked with numerous satisfied clients](I have 15+ years of experience in "SDLC-WEB/MOBILE APP" Industry and have worked with numerous satisfied clients)
+- 📄 Know about my experiences I have 15+ years of experience in "SDLC-WEB/MOBILE APP" Industry and have worked with numerous satisfied clients
 
 - ⚡ Fun fact **I am Funny talkative person.**
 
